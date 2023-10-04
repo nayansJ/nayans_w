@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nayansJ
-- 👀 I’m interested in UI/UX Engineering
+- 👀 I’m interested in UI/UX Designing
 - 🌱 Undergraduate at SLIIT
 - 💞️ I’m looking to collaborate on UI/UX Design Projects
 - 📫 Reach me - nayansjay@live.com
